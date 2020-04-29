@@ -1,5 +1,5 @@
 ## Resume
-
+https://eddietseng1129.github.io/resume/
 
 ## Status
 
